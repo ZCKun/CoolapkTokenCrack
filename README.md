@@ -1,2 +1,2 @@
 ### CoolapkTokenCrack.
-### [my blog](http://blog.2h0n9.com)
+### [my blog](https://zckun.github.io/)
